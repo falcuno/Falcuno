@@ -1,9 +1,10 @@
-<div align="center">
+<p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d6d6d6&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31eoartwwvi7637xugf2xowzc2d4&redirect=truet">
   </a>
 </p>
-          </a>
+
+<div align="center">
   <a href="https://fantube.atabook.org">ata</a>⠀⠀
   <a href="https://rentry.co/LettyK">rentry</a>⠀⠀
   <a href="https://guns.lol/qsmp">guns.lol</a>
