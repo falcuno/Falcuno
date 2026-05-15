@@ -2,13 +2,8 @@
   links
   
   <a href="https://ewron.atabook.org">ata</a>⠀⠀
-  <a href="https://rentry.co/LettyK">rentry</a>⠀⠀
+  <a href="https://rentry.co/2Z">rentry</a>⠀⠀
   <a href="https://pronouns.cc/@pm">pronouns.cc</a>⠀⠀
-  <a href="https://guns.lol/qsmp">guns.lol</a>
-</div>
-
-<div align="center">
-  <img width="420" alt="Screenshot_2026-05-14-22-39-17-98_a1b63f0b178142b982816dcaa9e2dd8b" src="https://github.com/user-attachments/assets/c7c8024f-42b5-4cea-b3bf-63965cbcc11b" />
 </div>
 
 <div align="center">
