@@ -10,7 +10,7 @@ i mix english uk with english us so my grammar can be terrible anytime
 
 you can have my jc3 screenshot itasll your yes thats m488 or the bavarium thing you get after finishing falcon maxime centcom
 
-<img width="450" alt="IMG20260605194315" src="https://github.com/user-attachments/assets/1136ee4b-f6a4-44cf-bb93-7c3a837f7a37" />
+<img width="450" alt="IMG20260605194315" src="https://github.com/user-attachments/assets/1136ee4b-f6a4-44cf-bb93-7c3a837f7a37" /> you can ask what weapons and gear mod i use to play
 
 and my favorite character is possibly meursault, rien, queequeg, jia/kong qiu, shiomi yoru, falconu, ryoshu, 2-d, russel (kind of meursault coded Hello), v1, schlatt (his character in qsmp bruh), rico, ezio (bro his name is too long), and also my wemmbu nugget on lobcorp dont ask me why 
 
