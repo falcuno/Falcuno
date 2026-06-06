@@ -1,6 +1,6 @@
 i am really lazy to redo my profile or link so you can have this for a while
 
-my ata/guestbook [here](https://ewron.atabook.org)
+[my ata/guestbook here](https://ewron.atabook.org)
 
 i mainly like projectmoon, mcyts, gorillaz
 
