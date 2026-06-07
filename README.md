@@ -2,6 +2,9 @@ i am really lazy to redo my profile or link so you can have this for a while
 
 [my ata/guestbook here](https://ewron.atabook.org)
 
+> [!warning]
+> i complain alot at a random time or friday so if youre annoyed then its not my fault technically
+
 i mainly like projectmoon, mcyts, gorillaz
 
 yes ive played just cause 3, gta v (please release gta vi papa rocks(murf)tar games) assassins creed (brotherhood & mirage), ultrakill, all pm games (: lobcorp, ruina, limbus), mewgenics (the only game i played from edmund)
