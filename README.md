@@ -3,7 +3,7 @@ i am really lazy to redo my profile or link so you can have this for a while
 [my ata/guestbook here](https://ewron.atabook.org)
 
 > [!warning]
-> i complain alot at a random time or friday so if youre annoyed then its not my fault technically
+> i complain alot at a random time or friday, i am sometimes sarcastic and im a feral asian man so if youre annoyed or disturbed then its not my fault technically
 
 i mainly like projectmoon, mcyts, gorillaz
 
