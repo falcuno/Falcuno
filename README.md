@@ -4,7 +4,7 @@
 
 ___
 
-and heres my unproblematic king Damon Albarn
+and heres my unproblematic king Damon Albarn of Blur and Gorillaz
 
 <img width="206" alt="damon albarn of blur... psssh" src="https://github.com/user-attachments/assets/be1d521d-c290-4e38-b64e-63cf347cdd03" />
 
