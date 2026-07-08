@@ -1,5 +1,15 @@
-i am really lazy to redo my profile or link so you can have this for a while
+<div align="center">
+  this account is semi inactive 😢and since im much of a bum myself to play this game
+</div>
 
-i block freely and if i block you then youre on [my dni list](https://rentry.co/dotonaro)
+___
+
+and heres my unproblematic king Damon Albarn
+
+<img width="206" alt="damon albarn of blur... psssh" src="https://github.com/user-attachments/assets/be1d521d-c290-4e38-b64e-63cf347cdd03" />
+
+and hello my gta online opps
+
+<!--
 
 <img width="1251" alt="image" src="https://github.com/user-attachments/assets/4e35f802-53f3-4d30-a9cd-302e86191853" />
